@@ -2,7 +2,7 @@
 
 ## Summer Activities
 
-One activity I did throughout the whole summer was doing my first job. I worked at my parent's boba store for two months and since there is a Planet Fitness Gym next to it, I went there for 3-4 days a week. I ended up getting a good amount of money for me to buy things on my own. Another activity that I did was that I went to my church's summer retreat. There were many activites and  delicious food! I had a lot of fun and met new people which I enjoyed hanging out with.
+One activity I did throughout the whole summer was doing my first job. I worked at a boba store for two months and since there is a Planet Fitness Gym next to it, I worked out there for 3-4 days a week. I ended up getting a good amount of money for me to buy things on my own. Another activity that I did was that I went to my church's summer retreat. There were many activites and  delicious food! I had a lot of fun and met new people which I enjoyed hanging out with.
 
 ## Learning Experiences
 
@@ -15,3 +15,7 @@ One goal I have for my senior year is that I want tofinish my college apps as so
 ## Favorite Summer Memory with Friends
 
 My favorite memory with my friends during the summer was in my summer retreat. We weren't able to use our phones for 4 days, so that allowed us to just talk and hangout without any electronics. I enjoyed spending time with them as we bonded together and grew closer. We shared a lot of fun momemnts together filled with laughter as well as some sentimental moments where we vented to each other. Overall, I had a great time with them during those 4 days and am looking forward to my next church retreat with them!
+
+## Favorite Summer Food
+
+One of my favorite things I ate during the summer were watermelons! I love eating watermelons in the hot weather since it is so refreshing and really cools you down after a long day. I also ate a lot of ice cream and frozen yogurt because those are very good on hot days as well. One last food that I enjoyed eating was korean bbq since I ate a lot of that whenever I went out since it is very yummy.
