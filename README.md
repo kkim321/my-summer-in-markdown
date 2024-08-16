@@ -14,3 +14,4 @@ One goal I have for my senior year is that I want tofinish my college apps as so
 
 ## Favorite Summer Memory with Friends
 
+My favorite memory with my friends during the summer was in my summer retreat. We weren't able to use our phones for 4 days, so that allowed us to just talk and hangout without any electronics. I enjoyed spending time with them as we bonded together and grew closer. We shared a lot of fun momemnts together filled with laughter as well as some sentimental moments where we vented to each other. Overall, I had a great time with them during those 4 days and am looking forward to my next church retreat with them!
